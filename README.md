@@ -7,4 +7,5 @@
 3. obsolete music is related to the binary oppositions such as: producer - consumer / dj - dancer/ musician - listener 
 
 4. the core of music that may not be considered obsolete lies not only in the organisation of audible material, but rather in thinking and organising socio-political ethos in which music takes place. obsolete music may remain a point of departure or serve as a relief of sorts - in the way that the artist is not bound to deal with formal structure and may focus on ethical, political, poetic and other meanings... 
-V. we demand: to purge all reproductible music and sounds in favour of a unique aural gesture.
+
+5. we demand: to purge all reproductible music and sounds in favour of a unique aural gesture.
