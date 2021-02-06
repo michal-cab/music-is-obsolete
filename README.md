@@ -9,3 +9,27 @@
 4. the core of music that may not be considered obsolete lies not only in the organisation of audible material, but rather in thinking and organising socio-political ethos in which music takes place. obsolete music may remain a point of departure or serve as a relief of sorts - in the way that the artist is not bound to deal with formal structure and may focus on ethical, political, poetic and other meanings... 
 
 5. we demand: to purge all reproductible music and sounds in favour of a unique aural gesture.
+
+
+
+hudba je obsolentní v.02
+0. předpokládáme, že za deset let se toho (nejen) v hudbě hodně změní. v řadě oblastí, kde se ještě nyní prosazují lidé, postupně začnou přebírat kompetence různě vycvičené umělé inteligence - v překládání textů, medicíně, právech a pochopitelně také v komponování/generování hudby a zvuků. díky tomuto posunu pak bude mnohem víc než dnes zaostřeno na meta vrstvu - tedy na roli tvůrce/programátora, který vytváří daný model, jehož výsledkem je teprve nějaká hudební nebo zvuková kompozice. v kontrapozici k této tendenci si dokážeme představit rozrůznění stylů a vznik nových žánrů, které se tendenci po zpředmětnění a nápodobě budou bránit. něco jako když se pokusíte vytvořit si takovou masku, aby umělá inteligence nepoznala vaši tvář - v tomto případě ale místo o tváři hovoříme o hudebním žánru. uvažování o zvuku jakožto o uměleckém výrazu bude více konceptualizováno, protože běžný posluchač bude mít zažito heslo, že hudba je již vyčerpaná, zastaralá a překonaná. náročnější posluchač organizovaných zvuků nebude vyžadovat jen formální a estetické uspokojení, ale jasně zacílené gesto s etickým, politickým, poetickým nebo jiným významem... 
+0.I. proměna hudby v budoucnosti souvisí s ideou kyborga a možností rozšiřování slyšitelného spektra díky implantátům. Kromě možnosti rozšíření slyšitelného spektra nelze vyloučit to, že vznikne i zcela nový aurální orgán, který nám umožní slyšet zvuky z n-tých dimenzí.
+I. významy slov se v čase přirozeně posouvají. z tohoto důvodu zde a nyní z pozice těch, kteří pečují o aurálně-sensuální pole prohlašujeme: hudba je obsolentní. 
+II. jednak "díky" zmnožení, všudypřítomnosti, reprodukovatelnosti, jednak "díky" akceleraci technologií a jednak "díky" dostupnosti a instantnosti softwarových nástrojů hudba zestárla. 
+III. obsolentní hudba souvisí se slovní dvojicí producent-spotřebitel / dj-tanečník / hudebník-posluchač. Ne-obsolentní hudba souvisí s dvojicí vysílač - přijímač a vyznačuje se schopností aktivovat oblasti k vysílání a přijímání.
+III.I ne-obsolentní hudba souvisí se zvukovou složkou rituálů, které si již nikdo nepamatuje
+III.II. Přijímač neobsolentní hudby místo hudebních konzonancí a disonancí doceňuje při poslechu konzonance a disonance konceptuální.
+III.III ne-obsolentní hudba je xenofilní
+III.III.I v tomto kontextu slovo xenofilní = láskyplné
+III.IV ne-obsolentní hudba je vždy prostředkem, nikdy cílem
+III.V hudba je zároveň prostředkem i cílem, bez ohledu na to, jestli je nebo není obsolentní
+IV. ohnisko hudby, která není obsolentní, spočívá nejen v organizaci slyšitelného materiálu, ale především v promýšlení a organizaci společensko-politického ethosu, do kterého je slyšitelný materiál zasazen. Obsolentní hudba může zůstat východiskem, úlevou - v tom smyslu, že na straně autora již není třeba toliko řešit formální strukturu a spíš se zaměřit více na etické, politické, poetické nebo jiné významy. 
+IV.I otázka přijatelnosti etických, politických nebo jiných významů je řešitelná pouze v krajině srdce
+IV.II protože hudba ve své podstatě nemůže být politická nebo etická, je veškerá politická a etická hudba obsolentní
+V. požadujeme: odstranění veškeré reprodukovatelné hudby ve prospěch jedinečného aurálního gesta.
+V.I. milujeme všechnu hudbu bez rozdílu jejího původu
+
+VI. ne-obsolentní hudba je jedinečný gestem, které směřuje k hloubce lidství a otevírá ho ven ke světu
+
+
