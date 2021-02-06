@@ -26,19 +26,19 @@ hudba je obsolentní v.02
 
 3. obsolentní hudba souvisí se slovní dvojicí producent-spotřebitel / dj-tanečník / hudebník-posluchač. Ne-obsolentní hudba souvisí s dvojicí vysílač - přijímač a vyznačuje se schopností aktivovat oblasti k vysílání a přijímání.
 
-3.1.ne-obsolentní hudba souvisí se zvukovou složkou rituálů, které si již nikdo nepamatuje
+3.1. ne-obsolentní hudba souvisí se zvukovou složkou rituálů, které si již nikdo nepamatuje
 
 3.2. Přijímač neobsolentní hudby místo hudebních konzonancí a disonancí doceňuje při poslechu konzonance a disonance konceptuální.
 
-3.3.ne-obsolentní hudba je xenofilní
+3.3. ne-obsolentní hudba je xenofilní
 
-3.3.1.v tomto kontextu slovo xenofilní = láskyplné
+3.3.1. v tomto kontextu slovo xenofilní = láskyplné
 
-3.4.ne-obsolentní hudba je vždy prostředkem, nikdy cílem
+3.4. ne-obsolentní hudba je vždy prostředkem, nikdy cílem
 
-3.5.hudba je zároveň prostředkem i cílem, bez ohledu na to, jestli je nebo není obsolentní
+3.5. hudba je zároveň prostředkem i cílem, bez ohledu na to, jestli je nebo není obsolentní
 
-4.ohnisko hudby, která není obsolentní, spočívá nejen v organizaci slyšitelného materiálu, ale především v promýšlení a organizaci společensko-politického ethosu, do kterého je slyšitelný materiál zasazen. Obsolentní hudba může zůstat východiskem, úlevou - v tom smyslu, že na straně autora již není třeba toliko řešit formální strukturu a spíš se zaměřit více na etické, politické, poetické nebo jiné významy. 
+4. ohnisko hudby, která není obsolentní, spočívá nejen v organizaci slyšitelného materiálu, ale především v promýšlení a organizaci společensko-politického ethosu, do kterého je slyšitelný materiál zasazen. Obsolentní hudba může zůstat východiskem, úlevou - v tom smyslu, že na straně autora již není třeba toliko řešit formální strukturu a spíš se zaměřit více na etické, politické, poetické nebo jiné významy. 
 
 4.1. otázka přijatelnosti etických, politických nebo jiných významů je řešitelná pouze v krajině srdce
 
